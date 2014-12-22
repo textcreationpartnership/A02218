@@ -32,9 +32,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-The Popes pittiful lamentation, for the death of his deere darling Don Ioan of Austria and deaths au
+
+1. ❧The Popes pittiful Lamentation, for the death of his deere darling Don Ioan of Austria: and Deaths aunswer to the same. With an Epitaphe vpon the death of the said Don Ioan. Translated after the French printed coppy. by H. C.
+
+1. ¶ Deathes aunswer.
+
+1. ¶ Don Ioans Epitaph.
+
 #####Back#####
-The Popes pittiful lamentation, for the death of his deere darling Don Ioan of Austria and deaths au
+❧Imprinted by I.C.
 **Types of content**
 
   * There are 152 **verse** lines!
